@@ -7,7 +7,7 @@
 기록하는 습관을 만들기 위해 노력하는 분석가 🤔<br>
 오늘도 화이팅😄<br>
 
-💬 [블로그 새우까앙](https://dyddl1993.tistory.com)
+💬 [블로그 새우까앙](https://dyddl1993.tistory.com/notice/5)
 
 
 <!--
