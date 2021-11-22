@@ -5,7 +5,7 @@
 <img src="https://img.shields.io/badge/R-276DC3?style=flat-square&logo=R&logoColor=white"/></a>
 
 기록하는 습관을 만들기 위해 노력하는 분석가 🤔<br>
-오늘도 화이팅😄<br>
+오늘도 화이팅 😄<br>
 
 💬 [블로그 새우위키](https://dyddl1993.tistory.com/notice/5)
 
